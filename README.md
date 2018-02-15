@@ -1,1 +1,0 @@
-# dmia_trends
